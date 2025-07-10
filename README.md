@@ -39,7 +39,7 @@ Atualmente, estou em busca de uma oportunidade para atuar profissionalmente na �
 ## 📬 Contato
 
 Ficou interessado(a) em algum projeto ou quer trocar uma ideia sobre dados?  
-📧 Me chame pelo [LinkedIn](https://www.linkedin.com/) ou envie um e-mail para: **seuemail@email.com**
+📧 Me chame pelo [LinkedIn](https://www.linkedin.com/in/renan-de-souza-rosa-7b8114236/) ou envie um e-mail para: **rosarenan12@email.com**
 
 ---
 
